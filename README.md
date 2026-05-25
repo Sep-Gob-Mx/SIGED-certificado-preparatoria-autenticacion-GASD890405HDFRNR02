@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GASD890405HDFRNR02
+GASD890405HDFRNR02
